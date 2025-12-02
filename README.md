@@ -21,3 +21,13 @@ https://github.com/daria604/oki-2025-lab8-
 Сайт: https://ahaidanka.github.io/oki-2025-lab8/
 
 
+
+Посилання на роботи Шмакової Христини: 
+
+
+Репозиторій: https://github.com/Peneselin/peneselin-2025-lab8
+
+
+Сайт: https://peneselin.github.io/peneselin-2025-lab8/
+
+
